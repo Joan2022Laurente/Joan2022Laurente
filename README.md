@@ -1,4 +1,4 @@
-![Header Banner](link_to_your_image.png)
+![Header Banner](https://dr.savee-cdn.com/things/6/4/d10ec910f5b75df746ef9d.webp)
 
 # ¡Hola! Soy Joan 👋
 
