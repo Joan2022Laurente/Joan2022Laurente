@@ -29,11 +29,11 @@ El aprendizaje es un viaje perpetuo para mí. Estoy dedicado a mantenerme al dí
 
 ## 💬 Conectemos
 
-Siempre estoy emocionado por conectar con otros desarrolladores, entusiastas de la tecnología y cualquiera apasionado por la innovación. Conéctate conmigo en [LinkedIn](https://www.linkedin.com/in/yourprofile) y participemos en discusiones sobre el fascinante mundo de la tecnología.
+Siempre estoy emocionado por conectar con otros desarrolladores, entusiastas de la tecnología y cualquiera apasionado por la innovación. Conéctate conmigo en [LinkedIn](https://www.linkedin.com/in/joan-callanaupa-laurente-399a77251) y participemos en discusiones sobre el fascinante mundo de la tecnología.
 
 ## 📫 Contacto
 
-No dudes en contactarme por correo electrónico en [tu@email.com] para discutir colaboraciones, proyectos o simplemente para compartir pensamientos sobre las increíbles posibilidades que la tecnología ofrece.
+No dudes en contactarme por correo electrónico en [joancallanaupalaurente@gmail.com] para discutir colaboraciones, proyectos o simplemente para compartir pensamientos sobre las increíbles posibilidades que la tecnología ofrece.
 
 ¡Sigue codificando y creando experiencias digitales extraordinarias! 🚀
 
