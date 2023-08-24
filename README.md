@@ -33,7 +33,7 @@ Siempre estoy emocionado por conectar con otros desarrolladores, entusiastas de 
 
 ## 📫 Contacto
 
-No dudes en contactarme por correo electrónico en [joancallanaupalaurente@gmail.com] para discutir colaboraciones, proyectos o simplemente para compartir pensamientos sobre las increíbles posibilidades que la tecnología ofrece.
+No dudes en contactarme por correo electrónico en [correo](joancallanaupalaurente@gmail.com) para discutir colaboraciones, proyectos o simplemente para compartir pensamientos sobre las increíbles posibilidades que la tecnología ofrece.
 
 ¡Sigue codificando y creando experiencias digitales extraordinarias! 🚀
 
